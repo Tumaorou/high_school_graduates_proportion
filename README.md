@@ -1,1 +1,0 @@
-# high_school_graduates_proportion
